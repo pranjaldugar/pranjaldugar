@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @pranjaldugar
 - 👀 I’m interested in a lot of things
 - 🌱 I’m currently learning pwa and node.js
-- 💞
+- 💞 lot of things 
