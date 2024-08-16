@@ -1,2 +1,1 @@
-Writing about yourself a thousand placess and even worse updating them is not .... you know what I mean;
-Find Me and stories about me @ https://pranjal.dugar.org
+Writing about yourself everywhere is like playing hide-and-seek with your sanity, and don't even get me started on the endless updates! Just skip the madness and find me (and my tales of survival) @ https://pranjal.dugar.org .
